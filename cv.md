@@ -1,5 +1,5 @@
 # Maxim, Chernov
-Student
+Student 
 ## Contact info
 Phone number: +375-29-842-70-85; e-mail: minmax3007@gmail.com
 ## Summary
